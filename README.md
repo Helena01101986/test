@@ -2,4 +2,4 @@
 
 I study Netology
 
-ewror
+06.11.22
